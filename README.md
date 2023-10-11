@@ -66,10 +66,10 @@
 
 👉 https://bit.ly/3mzxklV
 
-6）<b>[棉花云](https://kapok.one/#/register?code=pNPUA6Lb)</b>
+6）<b>[棉花云](https://www.mianhuayun.club/#/register?code=pNPUA6Lb)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转SS协议不限速大机场，佛山移动，长沙联通和广州腾讯云等多个入口，香港HKBN、iCable、HKT，日本FDCServer、NTT，台湾Hinet等多个落地。节点包括，港，台，日，美，新加坡，印度，德国，英国，马来西亚，专注性价比。</p>
 
-👉 https://bit.ly/3DnB5Qp
+👉 https://bit.ly/3PP250B
 
 7）<b>[色色小站](https://www.sesexiaozhan.com/#/register?code=URM5fZ22)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;BGP、IPLC、IEPL等多线接入，深港，沪日专线高级大机场。Netflix、HBO、TVB、HULU、ChatGPT等流媒体全解锁，节点包括：香港，澳门，台湾，日本，新加坡，韩国，美国，阿根廷。不限速，节点倍率第至 0.4 倍。还有美区APPID和Netflix会员共享，支持所有平台和设备。</p>
