@@ -32,7 +32,7 @@
 👉 https://bit.ly/458hcbU
 
 6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。 </p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
 👉 https://bit.ly/45eV67i
 
@@ -58,7 +58,7 @@
 
 👉 https://bit.ly/3ZybGgX
 
-4）<b>[猫熊网络加速器](https://bit.ly/3GJyTmW)</b>
+4）<b>[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。</p>
 
 👉 https://bit.ly/3GJyTmW
