@@ -66,7 +66,7 @@
 
 
 5）<b>[NiceDuck](https://user.niceduck.cc/#/register?code=2o3T6rG1)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全隧道中转SS线路，国内多入口，高SLA保证高端大机场，节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，支持Android/iOS/Mac/Windows/Linux/路由器平台，价格低至 3 元/月</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，8元100G，低价格，高品质，速度拉满，节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，支持Android/iOS/Mac/Windows/Linux/路由器平台。</p>
 
 👉 **7折优惠码：niceduck777，有效期截至2023-10-31**
 
@@ -74,7 +74,7 @@
 
 
 6）<b>[OuONetwork](https://board.ouonet.work/reguser?aff=HtVk0Vef)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳定中转SS协议不限速大机场，SLA保证。流媒体解锁，节点包括，香港，台湾，日本，美国，英国，德国，新加坡等。不限制设备数量。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳定中转SS协议不限速大机场，SLA保证。流媒体解锁，节点包括，香港，台湾，日本，美国，英国，德国，新加坡等。不限制设备数量。你最好的 跨越网络伙伴。</p>
 
 👉 **中秋国庆限时活动，优惠码：15%OFF，2023年10月31日结束。**
 
@@ -116,9 +116,9 @@
 <b>[苹果商店美区账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;请不要绑定自己的手机号，直接跳过两步验证登录，从Appstore登录，而不是icloud，登录icloud会导致手机被锁直接报废！！！如果无法登录，请自行注册或找代购购买，苹果目前风控严格，无法保证100%能用。</p>
 
- >    账号：`npvqpjfn@outlook.com`   密码：`zSgPhpR5ud`
+ >    账号：`npvqpjfn@outlook.com`   密码：`WEsoG9MJ0t`
 
- >    账号：`wes285207@163.com`       密码：`Ta39oAh1Ee`
+ >    账号：`wes285207@163.com`       密码：`c0LREUrbV8`
  
  <b>[TG群组搜索机器人](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;想搜一些有意思的电报群，又没有地方找，可以使用此机器人。</p>
@@ -148,5 +148,9 @@ https://addyoutube.com/
 4）如果你看到了某个电影或者电视剧的时候，听到了一段很优美的背景音乐，又很想知道它是什么音乐，可以在这个网站找到：
 
 https://www.tunefind.com/
+
+5）奈飞小站（流媒体&AI类会员账号专业合租平台）提供ChatGPT,YouTube, Disney+,Spotify, Netflix等账号的专业级合租服务：
+
+https://naifeistation.com/
 
 
