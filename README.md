@@ -31,10 +31,10 @@
 
 👉 https://bit.ly/458hcbU
 
-6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
+6）<b>[MESL](https://panel.meslcloud.com/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 https://bit.ly/45eV67i
+👉 https://bit.ly/3FBFf8c
 
 **************************************************  高  级  机  场  区  *******************************************************
 **************************************************  中  级  机  场  区  *******************************************************
@@ -63,10 +63,10 @@
 
 👉 https://bit.ly/46RNGYo
 
-5）<b>[To2Network](https://totwo.top/index.php#/register?code=Ppvl8ACQ)</b>
+5）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，巴基斯坦，美国，英国，泰国，德国，俄罗斯，巴西，阿根廷，越南，马来西亚，土耳其，埃及，尼日利亚，以色列，巴勒斯坦等等。倍率低至 0.3 倍</p>
 
-👉 https://bit.ly/46vcEgC
+👉 https://bit.ly/46PptCn
 
 6）<b>[滑稽场Pro](https://huajic.pro/#/register?code=21ddNZp9)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转低倍率大机场。节点区域包含: 香港、台湾、新加坡、韩国、日本、马来西亚、美国、英国、德国、印度、荷兰、土耳其、意大利、柬埔寨、越南、阿根廷等。流媒体稳定解锁: Netflix | 动画疯 | Disney+ | Dazn | HBO | Amazon | Prime | ChatGPT等。有不限时“纯流量”套餐可供选择。注册即可免费体验1G流量。</p>
