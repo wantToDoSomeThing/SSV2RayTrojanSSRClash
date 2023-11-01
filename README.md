@@ -26,13 +26,15 @@
 
 👉 https://bit.ly/3NlrqiZ
 
-5）<b>[Flyint飞数](https://www.feishu111.com/#/register?code=rOKCrZ8D)</b>
+5）<b>[Flyint飞数](https://www.goflyint.com/#/register?code=rOKCrZ8D)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
 
-👉 https://bit.ly/458hcbU
+👉 https://bit.ly/49fXptH
 
 6）<b>[MESL](https://panel.meslcloud.com/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
+
+👉 **双十一优惠，优惠码：15%OFF，11月12日 23:59截止**
 
 👉 https://bit.ly/3FBFf8c
 
@@ -44,12 +46,14 @@
 1）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
+👉 **双十一全部套餐 7 折优惠码：1101，11月30日截止**
+
 👉 https://bit.ly/3ugbftg
 
 2）<b>[抖云加速](https://douyun.vip/#/register?code=BwJyTE2t)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
 
-👉 **季付/年付优惠码：douyun666**
+👉 **季付/年付永久优惠码：douyun666**
 
 👉 https://bit.ly/3ZybGgX
 
@@ -58,44 +62,37 @@
 
 👉 https://bit.ly/45LgK34
 
-4）<b>[MickeyCloud](https://www.mickey.business/#/register?code=JeyntaIn)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全球高速节点SS协议高端大机场，4K秒开，8K不卡，原生IP，不限速。节点地区包括：港，新加坡，日本，台湾，美国，英国，土耳其等。24小时快速工单支持。支持Android,Windows,Mac,IOS,路由器等多种设备。注册即可享受免费试用三天。</p>
-
-👉 https://bit.ly/46RNGYo
-
-5）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
+4）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，巴基斯坦，美国，英国，泰国，德国，俄罗斯，巴西，阿根廷，越南，马来西亚，土耳其，埃及，尼日利亚，以色列，巴勒斯坦等等。倍率低至 0.3 倍</p>
 
 👉 https://bit.ly/46PptCn
 
-6）<b>[滑稽场Pro](https://huajic.pro/#/register?code=21ddNZp9)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转低倍率大机场。节点区域包含: 香港、台湾、新加坡、韩国、日本、马来西亚、美国、英国、德国、印度、荷兰、土耳其、意大利、柬埔寨、越南、阿根廷等。流媒体稳定解锁: Netflix | 动画疯 | Disney+ | Dazn | HBO | Amazon | Prime | ChatGPT等。有不限时“纯流量”套餐可供选择。注册即可免费体验1G流量。</p>
-
-👉 https://bit.ly/3F0ZFai
-
-7）<b>[NiceDuck](https://user.niceduck.cc/#/register?code=2o3T6rG1)</b>
+5）<b>[NiceDuck](https://user.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，8元100G，低价格，高品质，速度拉满，节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，支持Android/iOS/Mac/Windows/Linux/路由器平台。</p>
 
-👉 **7折优惠码：niceduck777，有效期截至2023-10-31**
+👉 **双11优惠，月付、季度付95折优惠码：duck-95，半年付、年付8折优惠码：duck-8，有效期截至2023-11-26**
 
 👉 https://bit.ly/48SEgh4
 
-8）<b>[OuONetwork](https://board.ouonet.work/reguser?aff=HtVk0Vef)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳定中转SS协议不限速大机场，SLA保证。流媒体解锁，节点包括，香港，台湾，日本，美国，英国，德国，新加坡等。不限制设备数量。你最好的 跨越网络伙伴。</p>
+6）<b>[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。</p>
 
-👉 **中秋国庆限时活动，优惠码：15%OFF，2023年10月31日结束。**
+👉 https://bit.ly/3GJyTmW
 
-👉 https://bit.ly/3EW091v
+7）<b>[BerylCloud](https://dash.berylcloud.com/#/register?code=eBTitxIG)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端精品隧道+精品IEPL专线大机场，高稳定性和低延迟双项保证，Netflix，hulu，Disney+等流媒体全解锁，节点包括：港，台，新加坡，美，日，加拿大，韩国，土耳其，英国，德国。阿尔巴尼亚，智利，塞尔维亚，希腊。月付 8 元起，一元试用优惠码：TRIAL</p>
+
+👉 https://bit.ly/3KhASBG
 
 **************************************************  中  级  机  场  区  *******************************************************
 **************************************************  初  级  机  场  区  *******************************************************
 
 所谓初级的含义：便宜是第一位的，平时的时候也能用，速度，流媒体解锁也能保证一部分，但是遇到重大敏感的日期，或者不明原因，也可能用不了，适合平时偶尔用用，需求不大的用户。
 
-1）<b>[FScloud](https://dash.996cloud.top/#/register?code=mAMmbdAY)</b>
+1）<b>[FScloud](https://web.fscloud.cc/#/register?code=mAMmbdAY)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量</p>
 
-👉 http://bit.ly/3ZguUWG
+👉 https://bit.ly/3tU21Fz
 
 2）<b>[魔戒](https://mojie.buzz/#/register?code=rJp1uYUW)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;不限速，没有到期时间，不限制人数的，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，马来西亚，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，巴西，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，价格最低可至 1 元。</p>
