@@ -94,6 +94,8 @@
 1）<b>[FScloud](https://web.fscloud.cc/#/register?code=mAMmbdAY)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量</p>
 
+👉 **由于这家老板不走寻常路，节点突然更新，使用了最新的协议hysteria，因此推荐使用官网自制的，或者NekoRay，shaodowrocket以及clashMata等支持该协议的客户端，不然导入了也无法使用**
+
 👉 https://bit.ly/3tU21Fz
 
 2）<b>[魔戒](https://mojie.buzz/#/register?code=rJp1uYUW)</b>
