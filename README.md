@@ -62,6 +62,8 @@
 3）<b>[智连云](https://888tizi.com/#/register?code=ISK4f2SD)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
+👉 **双十一优惠，半年付8折优惠码: 1111-20% ，一年付7折优惠码: 1111-30% ，无限时套餐75折优惠码: 1111-25% ,截止日：2023/12/01**
+
 👉 https://bit.ly/45LgK34
 
 4）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
