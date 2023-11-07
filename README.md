@@ -14,6 +14,8 @@
 2）<b>[FastLink](https://v02.fl-aff.com/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
+👉 **双十一优惠，八折优惠码：FASTLINK11 ，所有现在的套餐都已经自动折扣了，比如年付套餐，已经8折，加上双十一活动8折之后再八折相当于6.4折，力度相当诱人。**
+
 👉 http://bit.ly/3yukEPs
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
@@ -67,7 +69,7 @@
 👉 https://bit.ly/45LgK34
 
 4）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，巴基斯坦，美国，英国，泰国，德国，俄罗斯，巴西，阿根廷，越南，马来西亚，土耳其，埃及，尼日利亚，以色列，巴勒斯坦等等。倍率低至 0.3 倍</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，巴基斯坦，美国，英国，泰国，德国，俄罗斯，巴西，阿根廷，越南，马来西亚，土耳其，埃及，尼日利亚，以色列，巴勒斯坦等等。倍率低至 0.3 倍。</p>
 
 👉 https://bit.ly/46PptCn
 
