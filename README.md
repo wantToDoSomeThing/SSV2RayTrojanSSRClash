@@ -177,9 +177,7 @@ NekoBoxForAndroid: https://github.com/MatsuriDayo/NekoBoxForAndroid/releases
 
 2）IOS系统下推荐可用的客户端
 
-shaodowrocket: https://apps.apple.com/ca/app/shadowrocket/id932747118 (可用上面苹果商店美区账号自行安装)。
-
-以下等需自行到Apple商店下载。
+shaodowrocket: https://apps.apple.com/ca/app/shadowrocket/id932747118
 
 Quantumult: https://apps.apple.com/ca/app/quantumult/id1252015438
 
