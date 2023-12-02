@@ -34,7 +34,7 @@
 6）<b>[MESL](https://panel.meslcloud.com/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 **黑五（Black Friday）全部套餐 85 折优惠码：15%OFF，11月27日 23:59截止**
+👉 **双十二全部套餐 85 折优惠码：15%OFF，12月13日 23:59截止**
 
 👉 https://bit.ly/3FBFf8c
 
@@ -45,8 +45,6 @@
 
 1）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
-
-👉 **双十一全部套餐 7 折优惠码：1101，11月30日截止**
 
 👉 https://bit.ly/3ugbftg
 
@@ -69,8 +67,6 @@
 
 5）<b>[NiceDuck](https://user.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，8元100G，低价格，高品质，速度拉满，节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，支持Android/iOS/Mac/Windows/Linux/路由器平台。</p>
-
-👉 **双11优惠，月付、季度付95折优惠码：duck-95，半年付、年付8折优惠码：duck-8，有效期截至2023-11-26**
 
 👉 https://bit.ly/48SEgh4
 
