@@ -102,13 +102,7 @@
 
 分享一些我用过，且觉得好用的东西，不能保证100%可用，因为不是我亲自运营，仅作参考，有需要可以了解一下，没需要可以忽略：
 
-<b>[E卡付TG官方平台](t.me/EKaPayBot?start=FTGLJE26YN)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全球虚拟卡开卡，支持USDT充值，无限开通Tg会员，此卡可适用国外任何信用卡支付。支持：跨境电商：独立站运营费用；亚马逊、速卖通等租金及广告费用；域名购买、服务器租赁等费用。出海业务：海外服务器租赁、海外域名购买、企业海外机票、酒店预订、留学费用支付、留学宿舍费用支付等。海淘购物：解决海外网站购买、海外游戏付款、软件订阅付款、开发者账号、境外电话卡WIFI流量等需求。海外广告：轻松支付Facebook、Google、YouTube、Tiktok等。</p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;E卡付还支持国际速汇功能，实现充USDT提人民币，汇款渠道：银联国际，多种收款方式：支付宝，银行卡，安全快捷，永不冻结，不可追查，极速汇款，2小时内到账。</p>
-
-👉 https://bit.ly/3REIh2x
- 
- <b>[TG群组搜索机器人](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
+<b>[TG群组搜索机器人](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;想搜一些有意思的电报群，又没有地方找，可以使用此机器人。</p>
 
 👉 https://t.me/soso
