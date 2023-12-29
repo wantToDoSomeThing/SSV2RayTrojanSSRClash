@@ -50,6 +50,8 @@
 1）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
+👉 **元旦 85 折优惠码：2024 ，截止日期：2024/1/11 23:59**
+
 👉 https://bit.ly/3ugbftg
 
 2）<b>[抖云加速](https://douyun.vip/#/register?code=BwJyTE2t)</b>
