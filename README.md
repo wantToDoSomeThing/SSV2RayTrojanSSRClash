@@ -79,7 +79,7 @@
 👉 https://bit.ly/48SEgh4
 
 6）<b>[BerylCloud](https://dash.berylcloud.com/#/register?code=eBTitxIG)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端精品隧道+精品IEPL专线大机场，高稳定性和低延迟双项保证，Netflix，hulu，Disney+等流媒体全解锁，节点包括：港，台，新加坡，美，日，加拿大，韩国，土耳其，英国，德国。阿尔巴尼亚，智利，塞尔维亚，希腊。月付 8 元起，一元试用优惠码：TRIAL</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端精品隧道+精品IEPL专线大机场，高稳定性和低延迟双项保证，Netflix，hulu，Disney+等流媒体全解锁，节点包括：港，台，新加坡，美，日，加拿大，韩国，土耳其，英国，德国。阿尔巴尼亚，智利，塞尔维亚，希腊。月付 8 元起，一元试用优惠码：TRIAL 。</p>
 
 👉 https://bit.ly/3KhASBG
 
@@ -89,7 +89,7 @@
 👉 https://bit.ly/4aAhLhX
 
 8）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，阿根廷，土耳其，南极，乌克兰，印度尼西亚等。节点不限速，不限制设备数量，购买得多还赠送NetFlix独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，阿根廷，土耳其，南极，乌克兰，印度尼西亚等。节点不限速，不限制设备数量，购买得多还赠送NetFlix独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
 
 👉 https://bit.ly/3TJ0RYA
 
@@ -99,7 +99,7 @@
 所谓初级的含义：便宜是第一位的，平时的时候也能用，速度，流媒体解锁也能保证一部分，但是遇到重大敏感的日期，或者不明原因，也可能用不了，适合平时偶尔用用，需求不大的用户。
 
 1）<b>[FScloud](https://web.fscloud.cc/#/register?code=mAMmbdAY)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量。</p>
 
 👉 **使用最新的协议hysteria2，reality，更好的连接体验，更快的速度冲浪。**
 
