@@ -35,6 +35,8 @@
 5）<b>[Flyint飞数](https://www.goflyint.com/#/register?code=rOKCrZ8D)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
 
+👉 **元旦85折优惠码：ikun2024 ，终止时间: 2024 年1月3日**
+
 👉 https://bit.ly/49fXptH
 
 6）<b>[MESL](https://panel.meslcloud.com/#/register?code=WniLD0Xj)</b>
