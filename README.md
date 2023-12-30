@@ -56,12 +56,12 @@
 
 👉 https://bit.ly/3ugbftg
 
-2）<b>[抖云加速](https://douyunjiasu.vip/#/register?code=BwJyTE2t)</b>
+2）<b>[抖云加速](https://d.douyunjiasu.xyz/#/register?code=BwJyTE2t)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
 
 👉 **季付/年付永久优惠码：douyun666**
 
-👉 https://bit.ly/3GZGoHb
+👉 https://bit.ly/3Ry8Rso
 
 3）<b>[智连云](https://888tizi.com/#/register?code=ISK4f2SD)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
