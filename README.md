@@ -95,9 +95,7 @@
 👉 https://bit.ly/4aAhLhX
 
 8）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，阿根廷，土耳其，南极，乌克兰，印度尼西亚等。节点不限速，不限制设备数量，购买得多还赠送NetFlix独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
-
-👉 **元旦优惠，月付9折优惠码： month90 ，季付85折优惠码： season85 ，半年付82折优惠码： halfyear82 ，年付8折优惠码： year80 ，有效期：2023/12/20—2024/1/2**
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
 
 👉 https://bit.ly/3TJ0RYA
 
