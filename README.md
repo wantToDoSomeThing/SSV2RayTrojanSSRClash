@@ -28,23 +28,17 @@
 4）<b>[TapFog](https://www.tapfog.io/#/register?code=N5I4fc2k)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 6.8元。注册即可白嫖体验，好用再买不迟。</p>
 
-👉 **元旦8折优惠码：tapfog2024 ，有效期：2023/12/30 00:00 ~ 2024/01/01 23:59**
-
 👉 https://bit.ly/3NlrqiZ
 
 5）<b>[Flyint飞数](https://www.goflyint.com/#/register?code=rOKCrZ8D)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
 
-👉 **元旦85折优惠码：ikun2024 ，终止时间: 2024 年1月3日**
-
 👉 https://bit.ly/49fXptH
 
-6）<b>[MESL](https://panel.meslcloud.com/#/register?code=WniLD0Xj)</b>
+6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 **元旦85折优惠码：15%OFF ，终止时间: 2024 年1月4日**
-
-👉 https://bit.ly/3FBFf8c
+👉 https://bit.ly/45eV67i
 
 **************************************************  高  级  机  场  区  *******************************************************
 **************************************************  中  级  机  场  区  *******************************************************
