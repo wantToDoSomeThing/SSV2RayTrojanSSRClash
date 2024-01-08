@@ -72,9 +72,7 @@
 👉 https://bit.ly/46PptCn
 
 5）<b>[NiceDuck](https://user.niceduck.cc/#/register?code=2o3T6rG1)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，8元100G，低价格，高品质，速度拉满，节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，支持Android/iOS/Mac/Windows/Linux/路由器平台。</p>
-
-👉 **双节优惠，优惠码： duck-9 ，限月付、季付、半年付使用，优惠码： duck-8 ，限年付使用，截止日期：2024/1/7**
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
 
 👉 https://bit.ly/48SEgh4
 
