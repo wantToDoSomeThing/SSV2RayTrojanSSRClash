@@ -85,12 +85,7 @@
 
 👉 https://bit.ly/3TJ0RYA
 
-8）<b>[BerylCloud](https://dash.berylcloud.com/#/register?code=eBTitxIG)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端精品隧道+精品IEPL专线大机场，高稳定性和低延迟双项保证，Netflix，hulu，Disney+等流媒体全解锁，节点包括：港，台，新加坡，美，日，加拿大，韩国，土耳其，英国，德国。阿尔巴尼亚，智利，塞尔维亚，希腊。月付 8 元起，一元试用优惠码：TRIAL 。</p>
-
-👉 https://bit.ly/3KhASBG
-
-9）<b>[Bocchi](https://bocchi.ooo/index.php#/register?code=yv50YPu4)</b>
+8）<b>[Bocchi](https://bocchi.ooo/index.php#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。月套餐低至 8 元以下。</p>
 
 👉 **八八折优惠码：13onqlzr**
