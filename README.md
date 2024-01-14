@@ -31,10 +31,10 @@
 
 👉 https://bit.ly/49fXptH
 
-6）<b>[MESL](https://mesl.gov.ltd/#/register?code=WniLD0Xj)</b>
+6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 https://bit.ly/48TceRI
+👉 https://bit.ly/45eV67i
 
 7）<b>[NaiUNet](https://www.naiunet.com/register?aff=hgkMYgrd)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 深港IPLC专线SS协议大机场，单线程带宽跑满，节点包括香港，日本，台湾，新加坡，美国，马来西亚，英国，德国，朝鲜，古巴，南极等。Netflix、Disney、ChatGPT、DMM、DAZN、HBO等流媒体全解锁，节点不限速，不限制设备数量，即使在海外也能从海外入口接入，倍率低至 0.2 倍。在购买后六 6 小时内，使用不超过2G流量，无理由退款！买得放心。</p>
