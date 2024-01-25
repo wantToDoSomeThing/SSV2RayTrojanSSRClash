@@ -11,13 +11,17 @@
 
 👉 https://bit.ly/3ToWVfd
 
-2）<b>[FastLink](https://v02.fl-aff.com/auth/register?code=je8N)</b>
+2）<b>[FastLink](https://flaff-8a27c2ddc3.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
-👉 http://bit.ly/3yukEPs
+👉 **龙年春节活动全场 8 折优惠码：CHUNJIE**
+
+👉 https://bit.ly/3U95ECJ
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
+
+👉 **龙年春节活动全场 7 折优惠码：LONGNIAN**
 
 👉 https://bit.ly/3JCIZJn
 
@@ -26,10 +30,10 @@
 
 👉 https://bit.ly/3NlrqiZ
 
-5）<b>[Flyint飞数](https://www.goflyint.com/#/register?code=rOKCrZ8D)</b>
+5）<b>[Flyint飞数](https://www.flyintpro01.com/#/register?code=rOKCrZ8D)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
 
-👉 https://bit.ly/49fXptH
+👉 https://bit.ly/3OdB9I3
 
 6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
@@ -38,6 +42,8 @@
 
 7）<b>[NaiUNet](https://www.naiunet.com/register?aff=hgkMYgrd)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 深港IPLC专线SS协议大机场，单线程带宽跑满，节点包括香港，日本，台湾，新加坡，美国，马来西亚，英国，德国，朝鲜，古巴，南极等。Netflix、Disney、ChatGPT、DMM、DAZN、HBO等流媒体全解锁，节点不限速，不限制设备数量，即使在海外也能从海外入口接入，倍率低至 0.2 倍。在购买后六 6 小时内，使用不超过2G流量，无理由退款！买得放心。</p>
+
+👉 **2024龙年春节活动全场 8 折优惠码：2024-20OFF ，促销持续至 2024 年 02 月 16 日！**
 
 👉 https://bit.ly/48vdJGg
 
@@ -58,8 +64,6 @@
 
 3）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，Netfilx/Disney+/ChatGpt等流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，德国，土耳其，肯尼亚，哥伦比亚，埃及，阿根廷，尼日利亚，巴基斯坦，马来西亚，泰国，印度等等。倍率低至 0.3 倍。</p>
-
-👉 **双节优惠，月付95折优惠码：to202395 ，季付以上88折优惠码：to202388 ，截止日期：2024年01月23日**
 
 👉 https://bit.ly/46PptCn
 
