@@ -14,14 +14,14 @@
 2）<b>[FastLink](https://flaff-8a27c2ddc3.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
-👉 **龙年春节活动全场 8 折优惠码：CHUNJIE**
+👉 **龙年春节活动全场 8 折优惠码：CHUNJIE ，配合年付自动八折，可低至6.4折**
 
 👉 https://bit.ly/3U95ECJ
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
 
-👉 **龙年春节活动全场 7 折优惠码：LONGNIAN**
+👉 **龙年春节活动全场 7 折优惠码：LONGNIAN ，配合年付自动八折，可低至5.6折**
 
 👉 https://bit.ly/3JCIZJn
 
@@ -38,7 +38,7 @@
 6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 **春节活动 85 折优惠码：优惠码：15%OFF ，截止 2024 年 2 月 29 号**
+👉 **春节活动 85 折优惠码：优惠码：15%OFF ，截止 2024 年 2 月 29 号 **
 
 👉 https://bit.ly/45eV67i
 
@@ -56,6 +56,8 @@
 
 1）<b>[NiceDuck](https://user.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
+
+👉 **2024龙年春节85折优惠码：2024duck-85 ，限月付、季付、半年付使用。 75折优惠码：2024duck-75 ，限年付使用，有效期：2024/2/1—2024/2/18**
 
 👉 https://bit.ly/48SEgh4
 
