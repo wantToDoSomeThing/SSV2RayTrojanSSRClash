@@ -30,36 +30,36 @@
 
 👉 https://bit.ly/3NlrqiZ
 
-5）<b>[Flyint飞数](https://www.flyintpro01.com/#/register?code=rOKCrZ8D)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
-
-👉 https://bit.ly/3OdB9I3
-
-6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
-
-👉 **春节活动 85 折优惠码：优惠码：15%OFF ，截止 2024 年 2 月 29 号 **
-
-👉 https://bit.ly/45eV67i
-
-7）<b>[NaiUNet](https://www.naiunet.com/register?aff=hgkMYgrd)</b>
+5）<b>[NaiUNet](https://www.naiunet.com/register?aff=hgkMYgrd)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 深港IPLC专线SS协议大机场，单线程带宽跑满，节点包括香港，日本，台湾，新加坡，美国，马来西亚，英国，德国，朝鲜，古巴，南极等。Netflix、Disney、ChatGPT、DMM、DAZN、HBO等流媒体全解锁，节点不限速，不限制设备数量，即使在海外也能从海外入口接入，倍率低至 0.2 倍。在购买后六 6 小时内，使用不超过2G流量，无理由退款！买得放心。</p>
 
 👉 **2024龙年春节活动全场 8 折优惠码：2024-20OFF ，促销持续至 2024 年 02 月 16 日！**
 
 👉 https://bit.ly/48vdJGg
 
+6）<b>[Flyint飞数](https://www.flyintpro01.com/#/register?code=rOKCrZ8D)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
+
+👉 https://bit.ly/3OdB9I3
+
+7）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
+
+👉 **春节活动 85 折优惠码：优惠码：15%OFF ，截止 2024 年 2 月 29 号 **
+
+👉 https://bit.ly/45eV67i
+
 **************************************************  高  级  机  场  区  *******************************************************
 **************************************************  中  级  机  场  区  *******************************************************
 
 所谓中级的含义：用户众多，稳定，高速，支持地区多，性价比高，敏感时期，特殊时期偶有影响但几乎不影响正常使用。
 
-1）<b>[NiceDuck](https://user.niceduck.cc/#/register?code=2o3T6rG1)</b>
+1）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
 
 👉 **2024龙年春节85折优惠码：2024duck-85 ，限月付、季付、半年付使用。 75折优惠码：2024duck-75 ，限年付使用，有效期：2024/2/1—2024/2/18**
 
-👉 https://bit.ly/48SEgh4
+👉 https://bit.ly/3ujlpMM
 
 2）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
