@@ -64,6 +64,8 @@
 2）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
+👉 **春节活动全场 8 折优惠码：20242 ，截止：2024/2/24 23:59**
+
 👉 https://bit.ly/3ugbftg
 
 3）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
