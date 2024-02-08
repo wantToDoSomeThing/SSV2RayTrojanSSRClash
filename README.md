@@ -71,6 +71,8 @@
 3）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，Netfilx/Disney+/ChatGpt等流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，德国，土耳其，肯尼亚，哥伦比亚，埃及，阿根廷，尼日利亚，巴基斯坦，马来西亚，泰国，印度等等。倍率低至 0.3 倍。</p>
 
+👉 **春节活动全场 88 折优惠码：hello2024 ，截止：2024/02/15 23:59**
+
 👉 https://bit.ly/46PptCn
 
 4）<b>[抖云加速](https://d.douyunjiasu.xyz/#/register?code=BwJyTE2t)</b>
