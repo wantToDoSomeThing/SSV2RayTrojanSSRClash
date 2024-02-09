@@ -42,7 +42,7 @@
 6）<b>[Flyint飞数](https://www.flyintpro01.com/#/register?code=rOKCrZ8D)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
 
-👉 **LunarNewYear 8 折优惠码：ikun2024 ，截止 2024 年 2 月 19 号**
+👉 **LunarNewYear 85 折优惠码：ikun2024 ，截止 2024 年 2 月 19 号**
 
 👉 https://bit.ly/3OdB9I3
 
