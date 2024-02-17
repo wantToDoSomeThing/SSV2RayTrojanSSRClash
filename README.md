@@ -9,8 +9,6 @@
 1）<b>[TagInternet](https://tagss04.pro/#/auth/7wXZwXdx)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;最全地区节点高端SS专线大机场，原生IP，倍率低，不限速，节点包括港，台，美，日，新，俄，朝鲜，泰国，加拿大，印尼，印度，以色列，伊朗，约旦，土耳其，阿联酋，沙特阿拉伯，孟加拉国，法国，匈牙利，卢森堡，捷克，澳大利亚，澳门，英国，德国，荷兰，瑞士, 瑞典，挪威，菲律宾，越南，缅甸，阿根廷，乌拉圭，哥伦比亚，委内瑞拉，韩国，马来西亚，文莱，柬埔寨，尼泊尔，乌克兰，巴西，智利，南非，摩洛哥，肯尼亚，突尼斯，埃及，叙利亚，伊拉克，阿塞拜疆，哈萨克斯坦，吉尔吉斯斯坦，乌兹别克斯坦，巴基斯坦，新西兰，奥地利，意大利，比利时，爱尔兰，立陶宛，希腊，波兰，蒙古国，保加利亚，克罗地亚，北马其顿，塞浦路斯，罗马尼亚，斯洛文尼亚，阿尔巴尼亚，波黑共和国，墨西哥，巴拿马，哥斯达黎加，白俄罗斯，马恩岛，秘鲁，西班牙，葡萄牙，丹麦，芬兰，冰岛，塞尔维亚，拉脱维亚，尼日利亚，格鲁吉亚，东帝汶，斯里兰卡，纳米比亚，亚美尼亚，坦桑尼亚，阿尔及利亚，安道尔，巴拉圭，南极等。全球流媒体解锁， 共 80+ 个国家和地区，你能想到的国家和地区这里都有，你能想到的流媒体这里全解锁，真正的原生IP，相当于周游世界了。线路包括，南部广港，东部沪日，北部京德 BGP专线，特殊时期高速稳定，倍率低不限速，身在海外也可以使用国际站，体验当地的网络和流媒体。更有“朝鲜”，“梵蒂冈”，“南极”，“马斯克星链StarLink”节点体验。也可单开家宽纯净IP大流量套餐，可单独定制套餐独享IP，一对一技术支持。</p>
 
-👉 **春节活动 9 折优惠码：2024 ，截止：2024/02/17 00:00**
-
 👉 https://bit.ly/3usXafm
 
 2）<b>[FastLink](https://flaff-8a27c2ddc3.flaff9.cc/auth/register?code=je8N)</b>
@@ -35,14 +33,10 @@
 5）<b>[Flyint飞数](https://www.flyintpro01.com/#/register?code=rOKCrZ8D)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
 
-👉 **LunarNewYear 85 折优惠码：ikun2024 ，截止 2024 年 2 月 19 号**
-
 👉 https://bit.ly/3OdB9I3
 
 6）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，有"纯流量"不限时套餐，Netfilx/Disney+/ChatGpt等流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，德国，土耳其，肯尼亚，哥伦比亚，埃及，阿根廷，尼日利亚，巴基斯坦，马来西亚，泰国，印度, 印度尼西亚等等。倍率低至 0.3 倍。</p>
-
-👉 **春节活动全场 88 折优惠码：hello2024 ，截止：2024/02/15 23:59**
 
 👉 https://bit.ly/46PptCn
 
@@ -59,8 +53,6 @@
 1）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
 
-👉 **2024龙年春节85折优惠码：2024duck-85 ，限月付、季付、半年付使用。 75折优惠码：2024duck-75 ，限年付使用，有效期：2024/2/1—2024/2/18**
-
 👉 https://bit.ly/3ujlpMM
 
 2）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
@@ -73,21 +65,17 @@
 3）<b>[抖云加速](https://d.douyunjiasu.xyz/#/register?code=BwJyTE2t)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
 
-👉 **季付/年付永久优惠码：douyun666**
+👉 **新年 8 折优惠码： NEWYEAR2024**
 
 👉 https://bit.ly/3Ry8Rso
 
 4）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
 
-👉 **2024春节优惠活动，月付9折优惠码： month90 ，季付85折优惠码： season85 ，半年付82折优惠码： halfyear82 ，年付8折优惠码： year80 ，有效期：2024/2/1—2024/2/18**
-
 👉 https://bit.ly/3TJ0RYA
 
 5）<b>[NaiUNet](https://www.naiunet.com/register?aff=hgkMYgrd)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 深港IPLC专线SS协议大机场，单线程带宽跑满，节点包括香港，日本，台湾，新加坡，美国，马来西亚，英国，德国，朝鲜，古巴，南极等。Netflix、Disney、ChatGPT、DMM、DAZN、HBO等流媒体全解锁，节点不限速，不限制设备数量，即使在海外也能从海外入口接入，倍率低至 0.2 倍。在购买后六 6 小时内，使用不超过2G流量，无理由退款！买得放心。</p>
-
-👉 **2024龙年春节活动全场 8 折优惠码：2024-20OFF ，促销持续至 2024 年 02 月 16 日！**
 
 👉 https://bit.ly/48vdJGg
 
