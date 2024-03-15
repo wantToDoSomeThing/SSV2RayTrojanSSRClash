@@ -51,10 +51,10 @@
 
 👉 https://bit.ly/3ugbftg
 
-3）<b>[抖云加速](https://d.douyunjiasu.xyz/#/register?code=BwJyTE2t)</b>
+3）<b>[抖云加速](https://dys-9333.douyunjiasu.vip/#/register?code=BwJyTE2t)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
 
-👉 https://bit.ly/3Ry8Rso
+👉 https://bit.ly/3vbBnJs
 
 4）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
