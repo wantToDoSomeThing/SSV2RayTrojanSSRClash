@@ -56,10 +56,10 @@
 
 👉 https://bit.ly/3vbBnJs
 
-4）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
+4）<b>[M78星云](https://www.m78starcloud.com/#/register?code=TfURQ1ug)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
 
-👉 https://bit.ly/3TJ0RYA
+👉 https://bit.ly/3IN4eGV
 
 5）<b>[Bocchi](https://bocchi.ooo/index.php#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。月套餐低至 8 元以下。</p>
