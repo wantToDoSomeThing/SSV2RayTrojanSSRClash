@@ -19,6 +19,8 @@
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
 
+👉 **八折优惠码：SC80 ，配合年付底至6.4折**
+
 👉 https://bit.ly/3JCIZJn
 
 4）<b>[TapFog](https://www.tapfog.io/#/register?code=N5I4fc2k)</b>
@@ -79,6 +81,11 @@
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
 
 👉 https://bit.ly/3OdB9I3
+
+8）<b>[suixinfei](https://suixinfei.xyz/#/register?code=lZCDAw1W)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;优质中转广移沪移线路高质 不限速，SS协议大机场，节点全1倍率，包括：港，澳门，台，日，美国，英国，新加坡，韩国，印度尼西亚，老挝，缅甸，越南，泰国，柬埔寨，菲律宾等。解锁Netflix，DIsney+，chatgpt等流媒体。有“不限时流量包套餐”可供选择。用多少算多少直至用完。注册即可免费试用。</p>
+
+👉 https://bit.ly/4asDY0o
 
 **************************************************  中  级  机  场  区  *******************************************************
 **************************************************  初  级  机  场  区  *******************************************************
