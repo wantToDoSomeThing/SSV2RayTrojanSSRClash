@@ -14,12 +14,14 @@
 2）<b>[FastLink](https://flafflnk.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
+👉 **清明节八折优惠码：QINGMING ，配合年付底至6.4折, 活动截止到 4月11号**
+
 👉 https://bit.ly/439GVk1
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
 
-👉 **八折优惠码：SC80 ，配合年付底至6.4折**
+👉 **清明节八折优惠码：SC80 ，配合年付底至6.4折, 优惠到 4月11号截止**
 
 👉 https://bit.ly/3JCIZJn
 
@@ -46,6 +48,8 @@
 1）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
 
+👉 **清明节八五折优惠码：duck-85 ，截止日期：4月14号**
+
 👉 https://bit.ly/3ujlpMM
 
 2）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
@@ -54,7 +58,7 @@
 👉 https://bit.ly/3ugbftg
 
 3）<b>[抖云加速](https://douyun.biz/#/register?code=BwJyTE2t)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括香港、台湾、日本、狮城、美国、韩国、印度、印尼、澳洲、荷兰、英国、德国、法国、蒙古、巴西、智利、南非、挪威、俄罗斯、阿根廷、加拿大、意大利、乌克兰、奥地利、土耳其、墨西哥、马来西亚、尼日利亚、阿布扎比、斯洛文尼亚等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
 
 👉 https://bit.ly/3VyD12j
 
