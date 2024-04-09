@@ -79,13 +79,7 @@
 6）<b>[Suixinfei](https://suixinfei.xyz/#/register?code=lZCDAw1W)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;优质中转广移沪移线路高质 不限速，SS协议大机场，节点全1倍率，包括：港，澳门，台，日，美国，英国，新加坡，韩国，印度尼西亚，老挝，缅甸，越南，泰国，柬埔寨，菲律宾等。解锁Netflix，DIsney+，chatgpt等流媒体。有“不限时流量包套餐”可供选择。用多少算多少直至用完。注册即可免费试用。</p>
 
-👉 **月付9折优惠码：SXF10%**
-
-👉 **季付/半年付优惠码：SXF20%**
-
-👉 **年付/两年付优惠码：SXF30%**
-
-👉 **一次性不限时优惠码：SXF20%**
+👉 **所有套餐4折，优惠码：sxf40% ，截止日期：5月1号**
 
 👉 https://bit.ly/4asDY0o
 
