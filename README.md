@@ -14,14 +14,10 @@
 2）<b>[FastLink](https://flafflnk.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
-👉 **五一八折优惠码：51FL ，配合年付底至6.4折, 活动截止到 5月7号**
-
 👉 https://bit.ly/439GVk1
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
-
-👉 **五一八折优惠码：SC51 ，配合年付底至6.4折, 优惠到 5月7号截止**
 
 👉 https://bit.ly/3JCIZJn
 
@@ -32,8 +28,6 @@
 
 5）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，有"纯流量"不限时套餐，Netfilx/Disney+/ChatGpt等流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，德国，土耳其，肯尼亚，哥伦比亚，埃及，阿根廷，尼日利亚，巴基斯坦，马来西亚，泰国，印度, 印度尼西亚等等。倍率低至 0.3 倍。</p>
-
-👉 **五一劳动节 9 折优惠码：我劳动我快乐（限100份） ,  85 折优惠码：欢度五一（限51份）， 优惠到 5 月 6 号23:59 截止**
 
 👉 https://bit.ly/46PptCn
 
@@ -50,14 +44,10 @@
 1）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
 
-👉 **五一劳动节 9 折优惠码：duck-9 , 限月付、季付、半年付使用. 年付 8 折优惠码：duck-8 ， 优惠到 5月21号 截止**
-
 👉 https://bit.ly/3ujlpMM
 
 2）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
-
-👉 **五一 88 折优惠码：20242 , 优惠到 5月7号 23:59 截止**
 
 👉 https://bit.ly/3ugbftg
 
@@ -68,8 +58,6 @@
 
 4）<b>[M78星云](https://www.m78starcloud.com/#/register?code=TfURQ1ug)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
-
-👉 **五一 月付9折优惠码： month90 , 季付85折优惠码： season85 ， 半年付82折优惠码： halfyear82，年付8折优惠码： year80 ， 优惠到 5 月 7 号 截止**
 
 👉 https://bit.ly/3IN4eGV
 
