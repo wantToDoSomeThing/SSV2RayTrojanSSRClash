@@ -44,13 +44,6 @@
 
 👉 https://bit.ly/45eV67i
 
-7）<b>[Flyint飞数](https://www.flyintpro01.com/#/register?code=rOKCrZ8D)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
-
-👉 **618促销 87折优惠码：20240607，截止日期：6月10日**
-
-👉 https://bit.ly/3OdB9I3
-
 **************************************************  高  级  机  场  区  *******************************************************
 **************************************************  中  级  机  场  区  *******************************************************
 
@@ -71,12 +64,14 @@
 3）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
+👉 **618活动 85 折优惠码： 24618 ，活动结束时间  2024/6/28**
+
 👉 https://bit.ly/3ugbftg
 
-4）<b>[M78星云](https://www.m78starcloud.com/#/register?code=TfURQ1ug)</b>
+4）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
 
-👉 https://bit.ly/3IN4eGV
+👉 https://bit.ly/3TJ0RYA
 
 5）<b>[智连云](https://zhilianyun.xyz/#/register?code=ISK4f2SD)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
