@@ -56,22 +56,26 @@
 
 👉 https://bit.ly/4c2QoNt
 
-2）<b>[抖云加速](https://douyun.biz/#/register?code=BwJyTE2t)</b>
+2）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下</p>
+
+👉 **新用户7.8折优惠码：m78-22off，永久有效**
+
+👉 **2024 618优惠！季付85折优惠码： season85，半年付82折优惠码： halfyear82，年付8折优惠码： year80，有效期：2024/6/14—2024/6/20**
+
+👉 https://bit.ly/3TJ0RYA
+
+3）<b>[抖云加速](https://douyun.biz/#/register?code=BwJyTE2t)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
 
 👉 https://bit.ly/3VyD12j
 
-3）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
+4）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
 👉 **618活动 85 折优惠码： 24618 ，活动结束时间  2024/6/28**
 
 👉 https://bit.ly/3ugbftg
-
-4）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。</p>
-
-👉 https://bit.ly/3TJ0RYA
 
 5）<b>[智连云](https://zhilianyun.xyz/#/register?code=ISK4f2SD)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
@@ -82,6 +86,22 @@
 
 6）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
+
+👉 **端午节&618活动：**
+
+👉 **年付最高6折**
+
+👉 **周年庆7.5折优惠码：618-25off（可用于限定套餐） 常规套餐7折优惠码：30%OFF （需年付及以上）**
+
+👉 **618限定套餐： 不限时 / 618G流量 / 折后46.35元 / 如需叠加请发工单**
+
+👉 **618 Pro限定套餐： 不限时 / 1618G流量 / 折后126元 / 如需叠加请发工单**
+
+👉 **618 Pro Max限定套餐： 不限时 / 6180G流量 / 折后463.5元 / 如需叠加请发工单**
+
+👉 **常规套餐： 年付限时七折优惠码：30%OFF Starter / 100G流量 / 折后最低63元/年 Middle / 350G流量 / 折后最低189元/年 Advanced / 600G流量 / 折后最低315元/年 Ultimate / 1024G流量 / 折后最低504元/年**
+
+👉 **优惠码至2024年6月19日0点**
 
 👉 https://bit.ly/3wcLLkw
 
