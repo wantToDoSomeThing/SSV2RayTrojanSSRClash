@@ -14,14 +14,10 @@
 2）<b>[FastLink](https://flafflnk.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
-👉 **端午狂欢活动全场打7折优惠码：FL618 ，年付套餐，已经8折，再加上7折之后相当于5.6折，力度相当诱人。截止日期：6月20号**
-
 👉 https://bit.ly/439GVk1
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
-
-👉 **端午狂欢活动全场打7折优惠码：SC618 ，年付套餐，已经8折，再加上7折之后相当于5.6折，力度相当诱人。截止日期：6月20号**
 
 👉 https://bit.ly/3JCIZJn
 
@@ -40,8 +36,6 @@
 6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 **618促销 85折优惠码：15%OFF，截止日期：6月20日**
-
 👉 https://bit.ly/45eV67i
 
 **************************************************  高  级  机  场  区  *******************************************************
@@ -52,16 +46,12 @@
 1）<b>[BestVPN](https://go.bv2.xyz/#/register?code=N5xQ5OsP)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;独家Hysteria和Hysteria2协议，不限速，无审计,高速专线大机场， 不限时全部"纯流量"套餐，无月付季付年付，用多少算多少直到用完，节点包括：香港，台湾，日本，新加坡，美国，韩国，越南，俄罗斯，英国，印度，德国，英国，阿联酋，澳大利亚，加拿大，南非，瑞士，法国，荷兰，阿根廷，西班牙，瑞士，智利，意大利，墨西哥，以色列，巴西，土耳其。Netflix，Hulu，Disney+，Paramount等流媒体全解锁。解锁chatgpt。不限制设备数，遇到问题还有远程协助与微信客服帮助。解除使用后顾之忧，实在是翻墙冲浪，必备机场。</p>
 
-👉 **端午节八折优惠码：61824，有效期至 6月18号，限10元以上套餐可用**
-
 👉 https://bit.ly/4c2QoNt
 
 2）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下</p>
 
 👉 **新用户7.8折优惠码：m78-22off，永久有效**
-
-👉 **2024 618优惠！季付85折优惠码： season85，半年付82折优惠码： halfyear82，年付8折优惠码： year80，有效期：2024/6/14—2024/6/20**
 
 👉 https://bit.ly/3TJ0RYA
 
@@ -86,22 +76,6 @@
 
 6）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
-
-👉 **端午节&618活动：**
-
-👉 **年付最高6折**
-
-👉 **周年庆7.5折优惠码：618-25off（可用于限定套餐） 常规套餐7折优惠码：30%OFF （需年付及以上）**
-
-👉 **618限定套餐： 不限时 / 618G流量 / 折后46.35元 / 如需叠加请发工单**
-
-👉 **618 Pro限定套餐： 不限时 / 1618G流量 / 折后126元 / 如需叠加请发工单**
-
-👉 **618 Pro Max限定套餐： 不限时 / 6180G流量 / 折后463.5元 / 如需叠加请发工单**
-
-👉 **常规套餐： 年付限时七折优惠码：30%OFF Starter / 100G流量 / 折后最低63元/年 Middle / 350G流量 / 折后最低189元/年 Advanced / 600G流量 / 折后最低315元/年 Ultimate / 1024G流量 / 折后最低504元/年**
-
-👉 **优惠码至2024年6月19日0点**
 
 👉 https://bit.ly/3wcLLkw
 
@@ -233,3 +207,6 @@ clashVerge: https://github.com/zzzgydi/clash-verge/releases
 nekoray: https://github.com/MatsuriDayo/nekoray/releases
 
 clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
+
+---
+😊 最后，如果觉得这篇推荐对你有所帮助，那么不妨点一下右上角的 star ⭐️，这将让我更有动力保持更新。💚 感谢你能看到此处 💚。
