@@ -111,10 +111,15 @@
 
 分享一些我用过，且觉得好用的东西，不能保证100%可用，因为不是我亲自运营，仅作参考，有需要可以了解一下，没需要可以忽略：
 
-<b>[TG群组搜索机器人](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
+<b>[TG群组搜索机器人](https://t.me/soso)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;想搜一些有意思的电报群，又没有地方找，可以使用此机器人。</p>
 
 👉 https://t.me/soso
+
+<b>[皮卡宝虚拟信用卡官方平台](https://t.me/pikabaobot?start=4e1d545b-4)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;皮卡宝虚拟信用卡，专注海外虚拟信用卡付款，免实名认证，可无限开卡，拥有VISA、MASTER多个国家多个币种卡BIN。店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、发开者应用、海淘购物等全场景支付。，支持 OpenAi 人工智能 chatGPT PLUS 开通，支持绑定支付宝进行线上消费，支持 开通Telegram飞机会员，支持USDT和人民币充值。</p>
+
+👉 https://bit.ly/4cujw0e
 
 **************************************************  特  殊  介  绍  区  *******************************************************
 
@@ -130,83 +135,21 @@ https://temp-mail.org
 
 https://www.materialtools.com/
 
-https://yunduanxin.net/
-
 https://sms-activate.org/cn
 
 3）直接粘贴网址下载YouTube视频和字幕，可自己选清晰度和格式：
 
 https://addyoutube.com/
 
-4）如果你看到了某个电影或者电视剧的时候，听到了一段很优美的背景音乐，又很想知道它是什么音乐，可以在这个网站找到：
+4）海外人士追剧国内电影电视剧（国内热播电视剧动漫电影同步更新）：
 
-https://www.tunefind.com/
+https://www.nivod7.com/index.html
 
-**************************************************  特  殊  介  绍  区  *******************************************************
+5）小霸王游戏在线玩，童年的回忆：
+
+https://www.yikm.net/
 
 ******************************************************************************************************************************************************************************
-
-1）Andorid系统下推荐可用的客户端
-
-SS： https://github.com/shadowsocks/shadowsocks-android/releases
-
-SSR： https://github.com/HMBSbige/ShadowsocksR-Android/releases
-
-SSRRAY： https://github.com/xxf098/shadowsocksr-v2ray-android/releases
-
-Matsuri: https://github.com/MatsuriDayo/Matsuri/releases
-
-V2RayNG: https://github.com/2dust/v2rayNG/releases
-
-v2flyNG: https://github.com/2dust/v2flyNG/releases
-
-Surfboard: https://github.com/getsurfboard/surfboard/releases
-
-NekoBoxForAndroid: https://github.com/MatsuriDayo/NekoBoxForAndroid/releases
-
-2）IOS系统下推荐可用的客户端
-
-shaodowrocket: https://apps.apple.com/ca/app/shadowrocket/id932747118
-
-Quantumult: https://apps.apple.com/ca/app/quantumult/id1252015438
-
-Quantumult X: https://apps.apple.com/ca/app/quantumult-x/id1443988620
-
-Surge: https://apps.apple.com/us/app/surge-5/id1442620678
-
-Loon: https://apps.apple.com/ca/app/loon/id1373567447
-
-stash: https://apps.apple.com/ca/app/stash-rule-based-proxy/id1596063349
-
-3）Windows下推荐可用的客户端
-
-SS： https://github.com/shadowsocks/shadowsocks-windows/releases
-
-SSR： https://github.com/HMBSbige/ShadowsocksR-Windows/releases
-
-V2RayN: https://github.com/2dust/v2rayN/releases
-
-clashN: https://github.com/2dust/clashN
-
-clashVerge: https://github.com/zzzgydi/clash-verge/releases
-
-nekoray: https://github.com/MatsuriDayo/nekoray/releases
-
-clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
-
-4）MAC下推荐可用的客户端
-
-clashVerge: https://github.com/zzzgydi/clash-verge/releases
-
-clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
-
-5）Linux下推荐可用的客户端
-
-clashVerge: https://github.com/zzzgydi/clash-verge/releases
-
-nekoray: https://github.com/MatsuriDayo/nekoray/releases
-
-clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
 
 ---
 😊 最后，如果觉得这篇推荐对你有所帮助，那么不妨点一下右上角的 star ⭐️，这将让我更有动力保持更新。💚 感谢你能看到此处 💚。
