@@ -29,8 +29,6 @@
 5）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
 
-👉 **618活动 85折优惠码：duck-85，限月付、季付、半年付使用；75折优惠码：duck-75，限年付使用。有效期：2024/6/6—2024/6/30**
-
 👉 https://bit.ly/3ujlpMM
 
 **************************************************  高  级  机  场  区  *******************************************************
@@ -58,14 +56,10 @@
 4）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
-👉 **618活动 85 折优惠码： 24618 ，活动结束时间  2024/6/28**
-
 👉 https://bit.ly/3ugbftg
 
 5）<b>[智连云](https://zhilianyun.xyz/#/register?code=ISK4f2SD)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
-
-👉 **618优惠码 月/季/半年优惠20%: 1111 ，年付优惠30%：2222， 不限时10%优惠码: 3333， 2024/06/30结束**
 
 👉 https://bit.ly/454ellh
 
@@ -91,10 +85,10 @@
 
 👉 https://bit.ly/3Sg6GeC
 
-2）<b>[魔戒](https://mojie.buzz/#/register?code=rJp1uYUW)</b>
+2）<b>[魔戒](https://mojie.info/#/register?code=rJp1uYUW)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;不限速，没有到期时间，不限制人数的，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，价格最低可至 1 元。</p>
 
-👉 https://bit.ly/42dipMM
+👉 https://bit.ly/3Lc1GU9
 
 3）<b>[随心飞](https://suixinfei.xyz/#/register?code=lZCDAw1W)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;优质中转广移沪移线路高质 不限速，SS协议大机场，节点全1倍率，包括：港，澳门，台，日，美国，英国，新加坡，韩国，印度尼西亚，老挝，缅甸，越南，泰国，柬埔寨，菲律宾等。解锁Netflix，DIsney+，chatgpt等流媒体。有“不限时流量包套餐”可供选择。用多少算多少直至用完。注册即可免费试用。</p>
@@ -136,11 +130,7 @@ https://sms-activate.org/cn
 
 https://addyoutube.com/
 
-4）海外人士追剧国内电影电视剧（国内热播电视剧动漫电影同步更新）：
-
-https://www.nivod7.com/index.html
-
-5）小霸王游戏在线玩，童年的回忆：
+4）小霸王游戏在线玩，童年的回忆：
 
 https://www.yikm.net/
 
