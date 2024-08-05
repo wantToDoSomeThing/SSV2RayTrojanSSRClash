@@ -23,10 +23,16 @@
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
 
+👉 **七夕节浪漫优惠码：SCQIXI 享受全场打7折，截止日期：8月18号**
+
+👉 **所有现在的套餐都已经自动折扣了，比如年付套餐，已经8折，加上七夕活动7折之后再八折相当于5.6折，力度相当诱人。**
+
 👉 https://bit.ly/3JCIZJn
 
 4）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
+
+👉 **七夕节浪漫 88折优惠码：duck-88, 限月付、季付、半年付使用。77折优惠码：duck-77，限年付使用，截止日期： 8月25号**
 
 👉 https://bit.ly/3ujlpMM
 
@@ -69,6 +75,8 @@
 
 6）<b>[智连云](https://zhilianyun.xyz/#/register?code=ISK4f2SD)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
+
+👉 **七夕节活动：月/季/半年优惠20%: 1111，年付优惠30%：2222 ，不限时10%优惠码: 3333，截止日期： 8月25号**
 
 👉 https://bit.ly/454ellh
 
