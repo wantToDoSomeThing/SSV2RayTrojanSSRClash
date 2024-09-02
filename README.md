@@ -14,25 +14,15 @@
 2）<b>[FastLink](https://flafflnk.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
-👉 **七夕节浪漫优惠码：QIXIJIE 享受全场打7折，截止日期：8月18号**
-
-👉 **所有现在的套餐都已经自动折扣了，比如年付套餐，已经8折，加上七夕活动7折之后再八折相当于5.6折，力度相当诱人。**
-
 👉 https://bit.ly/439GVk1
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
 
-👉 **七夕节浪漫优惠码：SCQIXI 享受全场打7折，截止日期：8月18号**
-
-👉 **所有现在的套餐都已经自动折扣了，比如年付套餐，已经8折，加上七夕活动7折之后再八折相当于5.6折，力度相当诱人。**
-
 👉 https://bit.ly/3JCIZJn
 
 4）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
-
-👉 **七夕节浪漫 88折优惠码：duck-88, 限月付、季付、半年付使用。77折优惠码：duck-77，限年付使用，截止日期： 8月25号**
 
 👉 https://bit.ly/3ujlpMM
 
@@ -78,12 +68,10 @@
 
 👉 https://bit.ly/3ugbftg
 
-7）<b>[智连云](https://zhilianyun.xyz/#/register?code=ISK4f2SD)</b>
+7）<b>[智连云](https://xinzhilian.xyz/#/register?code=ISK4f2SD)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
-👉 **七夕节活动：月/季/半年优惠20%: 1111，年付优惠30%：2222 ，不限时10%优惠码: 3333，截止日期： 8月25号**
-
-👉 https://bit.ly/454ellh
+👉 https://bit.ly/3MvNmX8
 
 8）<b>[随心飞](https://suixinfei.co/#/register?code=lZCDAw1W)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;优质中转广移沪移线路高质 不限速，SS协议大机场，节点全1倍率，包括：港，澳门，台，日，美国，英国，新加坡，韩国，印度尼西亚，老挝，缅甸，越南，泰国，柬埔寨，菲律宾等。解锁Netflix，DIsney+，chatgpt等流媒体。有“不限时流量包套餐”可供选择。用多少算多少直至用完。注册即可免费试用。</p>
