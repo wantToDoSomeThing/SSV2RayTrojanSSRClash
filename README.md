@@ -115,10 +115,10 @@
 
 👉 https://t.me/soso
 
-<b>[皮卡宝虚拟信用卡官方平台](https://t.me/pikabaobot?start=4e1d545b-4)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;皮卡宝虚拟信用卡，专注海外虚拟信用卡付款，免实名认证，可无限开卡，拥有VISA、MASTER多个国家多个币种卡BIN。店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、发开者应用、海淘购物等全场景支付。，支持 OpenAi 人工智能 chatGPT PLUS 开通，支持绑定支付宝进行线上消费，支持 开通Telegram飞机会员，支持USDT和人民币充值。</p>
+<b>[PokePay](https://app.pokepay.cc/pages/passport/invitation?r=153959)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pokepay全球多币种国际支付卡，零月租，零管理费，ChatGPT、Midjourney、亚马逊、eBay等多场景使用，支持绑定支付宝进行线上消费。卡种有虚拟卡（Visa & Master）：即开即用，多场景丝滑体验。也有实物卡（Visa）：刷卡、ATM取现、绑定支付，大额消费都行。在线USDT充值，轻松解决海外支付难题。7*24小时，全球客服。随时支持。</p>
 
-👉 https://bit.ly/4cujw0e
+👉 https://bit.ly/3AWp1aw
 
 **************************************************  特  殊  介  绍  区  *******************************************************
 
