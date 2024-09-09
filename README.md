@@ -46,7 +46,7 @@
 👉 https://bit.ly/3TJ0RYA
 
 2）<b>[HaloCloud](https://cloud.halo.do/zh/#/auth/signup;referral=nmxKiD0h)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议机场中高端机场, 三网IEPL专线线路，节点包括：香港，美国，日本，新加坡，英国等，节点低倍率低至0.5倍。流媒体，Netflix，DIsney+等都解锁，支持chatgpt。高峰期4K流畅，8K不卡。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。，港、台、日、新、美、英等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。</p>
 
 👉 https://bit.ly/3ARYA5R
 
