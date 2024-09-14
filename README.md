@@ -60,10 +60,10 @@
 
 👉 https://bit.ly/3OdB9I3
 
-5）<b>[CTC](https://www.ctc.run/#/register?code=EPS5rK2q)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;VLESS REALITY 协议高质量直连大机场，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，节点倍率低，常见 1 倍率，还有，0.8，0.5，0.3，甚至 0 倍率节点可免费白嫖。Disney+，Netflix，Dazn，Hulu等流媒体全解锁，支持Chatgpt。套餐价格低至 年付 15 元。适合长期白嫖用户。</p>
+5）<b>[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
-👉 https://bit.ly/4cizWby
+👉 https://bit.ly/47oYLBG
 
 6）<b>[抖云加速](https://douyun.biz/#/register?code=BwJyTE2t)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
@@ -75,10 +75,10 @@
 
 👉 https://bit.ly/3ugbftg
 
-8）<b>[智连云](https://xinzhilian.xyz/#/register?code=ISK4f2SD)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
+8）<b>[CTC](https://www.ctc.run/#/register?code=EPS5rK2q)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;VLESS REALITY 协议高质量直连大机场，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，节点倍率低，常见 1 倍率，还有，0.8，0.5，0.3，甚至 0 倍率节点可免费白嫖。Disney+，Netflix，Dazn，Hulu等流媒体全解锁，支持Chatgpt。套餐价格低至 年付 15 元。适合长期白嫖用户。</p>
 
-👉 https://bit.ly/3MvNmX8
+👉 https://bit.ly/4cizWby
 
 9）<b>[随心飞](https://suixinfei.co/#/register?code=lZCDAw1W)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;优质中转广移沪移线路高质 不限速，SS协议大机场，节点全1倍率，包括：港，澳门，台，日，美国，英国，新加坡，韩国，印度尼西亚，老挝，缅甸，越南，泰国，柬埔寨，菲律宾等。解锁Netflix，DIsney+，chatgpt等流媒体。有“不限时流量包套餐”可供选择。用多少算多少直至用完。月付7元100g。注册即可免费试用。</p>
