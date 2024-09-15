@@ -47,6 +47,8 @@
 
 👉 **新用户7.8折优惠码：m78-22off，永久有效**
 
+👉 **中秋季付85折优惠码： season85 ，半年付82折优惠码： halfyear82 ，年付8折优惠码： year80 ，有效期：2024/9/14—2024/9/17**
+
 👉 https://bit.ly/3TJ0RYA
 
 2）<b>[HaloCloud](https://cloud.halo.do/zh/#/auth/signup;referral=nmxKiD0h)</b>
@@ -79,6 +81,8 @@
 7）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
+👉 **中秋佳节全场 8折, 优惠码 24915 ,活动结束时间  2024/9/19 23:59**
+
 👉 https://bit.ly/3ugbftg
 
 8）<b>[CTC](https://www.ctc.run/#/register?code=EPS5rK2q)</b>
@@ -93,6 +97,8 @@
 
 10）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
+
+👉 **中秋 79折 优惠码： 3rJjf1g8 ，有效期：2024年9月23日0点止**
 
 👉 https://bit.ly/3wcLLkw
 
