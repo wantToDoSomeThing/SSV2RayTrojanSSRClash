@@ -109,10 +109,10 @@
 
 👉 https://t.me/soso
 
-<b>[PokePay](https://app.pokepay.cc/pages/passport/invitation?r=153959)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pokepay全球多币种国际支付卡，零月租，零管理费，ChatGPT、Midjourney、亚马逊、eBay等多场景使用，kyc简单，信息随便填。无需人脸识别，无需上传照片。支持绑定支付宝进行线上消费。卡种有虚拟卡（Visa & Master）：即开即用，多场景丝滑体验。也有实物卡（Visa）：刷卡、ATM取现、绑定支付，大额消费都行。在线USDT充值，轻松解决海外支付难题。7*24小时，全球客服。随时支持。</p>
+<b>[PokePay](https://app.pokepay.cc/pages/passport/invitation?r=156443)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pokepay全球多币种国际支付U卡，零月租，零管理费，ChatGPT、Midjourney、亚马逊、eBay等多场景使用，kyc简单，信息随便填。无需人脸识别，无需上传照片。支持绑定支付宝进行线上消费。卡种有虚拟卡（Visa & Master）：即开即用，多场景丝滑体验。也有实物卡（Visa）：刷卡、ATM取现、绑定支付，大额消费都行。在线USDT充值，轻松解决海外支付难题。7*24小时，全球客服。随时支持。</p>
 
-👉 https://bit.ly/3AWp1aw
+👉 https://bit.ly/4eeHm1k
 
 **************************************************  特  殊  介  绍  区  *******************************************************
 
