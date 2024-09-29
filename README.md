@@ -14,14 +14,14 @@
 2）<b>[FastLink](https://flafflnk.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
 
-👉 **国庆活动优惠码 75GUOQING 享受全场打7折，年付套餐，已经8折，加上7折之后再八折相当于5.6折，力度相当诱人。**
+👉 **国庆活动优惠码 75GUOQING 享受全场打7折，年付套餐，已经8折，加上7折之后再八折相当于5.6折，力度相当诱人。截止日期：10月10号**
 
 👉 https://bit.ly/439GVk1
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
 
-👉 **国庆活动优惠码 GUOQING 享受全场打7折，年付套餐，已经8折，加上7折之后再八折相当于5.6折，力度相当诱人。**
+👉 **国庆活动优惠码 GUOQING 享受全场打7折，年付套餐，已经8折，加上7折之后再八折相当于5.6折，力度相当诱人。截止日期：10月10号**
 
 👉 https://bit.ly/3JCIZJn
 
@@ -61,6 +61,8 @@
 
 4）<b>[抖云加速](https://douyun.biz/#/register?code=BwJyTE2t)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
+
+👉 **国庆节八折优惠码： DOUYUN80  ，下单时输入即可全场打八折。**
 
 👉 https://bit.ly/3VyD12j
 
