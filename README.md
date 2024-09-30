@@ -28,8 +28,6 @@
 4）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。</p>
 
-👉 **中秋9折优惠码：duck-9 ,限月付、季付、半年付使用。8折优惠码：duck-8，限年付使用，有效期：2024/9/9—2024/9/29**
-
 👉 https://bit.ly/3ujlpMM
 
 5）<b>[BestVPN](https://go.bv2.xyz/#/register?code=N5xQ5OsP)</b>
@@ -90,8 +88,6 @@
 
 9）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
-
-👉 **中秋 79折 优惠码： 3rJjf1g8 ，有效期：2024年9月23日0点止**
 
 👉 https://bit.ly/3wcLLkw
 
