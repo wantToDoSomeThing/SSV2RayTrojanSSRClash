@@ -9,28 +9,20 @@
 1）<b>[TagInternet](https://tagss06.pro/#/auth/7wXZwXdx)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;最全地区节点高端SS专线大机场，原生IP，倍率低，不限速，节点包括港，台，美，日，新，俄，朝鲜，泰国，加拿大，印尼，印度，以色列，伊朗，约旦，土耳其，阿联酋，沙特阿拉伯，孟加拉国，法国，匈牙利，卢森堡，捷克，澳大利亚，澳门，英国，德国，荷兰，瑞士, 瑞典，挪威，菲律宾，越南，缅甸，阿根廷，乌拉圭，哥伦比亚，委内瑞拉，韩国，马来西亚，文莱，柬埔寨，尼泊尔，乌克兰，巴西，智利，南非，摩洛哥，肯尼亚，突尼斯，埃及，叙利亚，伊拉克，阿塞拜疆，哈萨克斯坦，吉尔吉斯斯坦，乌兹别克斯坦，巴基斯坦，新西兰，奥地利，意大利，比利时，爱尔兰，立陶宛，希腊，波兰，蒙古国，保加利亚，克罗地亚，北马其顿，塞浦路斯，罗马尼亚，斯洛文尼亚，阿尔巴尼亚，波黑共和国，墨西哥，巴拿马，哥斯达黎加，白俄罗斯，马恩岛，秘鲁，西班牙，葡萄牙，丹麦，芬兰，冰岛，塞尔维亚，拉脱维亚，尼日利亚，格鲁吉亚，东帝汶，斯里兰卡，纳米比亚，亚美尼亚，坦桑尼亚，阿尔及利亚，安道尔，巴拉圭，南极等。全球流媒体解锁， 共 80+ 个国家和地区，你能想到的国家和地区这里都有，你能想到的流媒体这里全解锁，真正的原生IP，相当于周游世界了。线路包括，南部广港，东部沪日，北部京德 BGP专线，特殊时期高速稳定，倍率低不限速，身在海外也可以使用国际站，体验当地的网络和流媒体。更有“朝鲜”，“梵蒂冈”，“南极”，“马斯克星链StarLink”节点体验。也可单开家宽纯净IP大流量套餐，可单独定制套餐独享IP，一对一技术支持。</p>
 
-👉 **国庆活动 9折 优惠码：1001 除了Special计划，其他套餐都可以用，仅限季度以上。截止日期：2024/10/10 00:00**
-
 👉 https://bit.ly/3BE6oZp
 
 2）<b>[FastLink](https://flafflnk.flaff9.cc/auth/register?code=je8N)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm。</p>
-
-👉 **国庆活动优惠码 75GUOQING 享受全场打7折，年付套餐，已经8折，加上7折之后再八折相当于5.6折，力度相当诱人。截止日期：10月10号**
 
 👉 https://bit.ly/439GVk1
 
 3）<b>[SpeedCat](https://github01.youbbv.com/auth/register?code=7TiK)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳如闪电，快如肥猫，高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁，注册即可免费白嫖3天，白嫖优惠码：free 。</p>
 
-👉 **国庆活动优惠码 GUOQING 享受全场打7折，年付套餐，已经8折，加上7折之后再八折相当于5.6折，力度相当诱人。截止日期：10月10号**
-
 👉 https://bit.ly/3JCIZJn
 
 4）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。</p>
-
-👉 **NiceDuck周年庆全场7折，优惠码：niceduck777 , 有效期：2024年10月01日至2024年10月31日**
 
 👉 https://bit.ly/3ujlpMM
 
@@ -49,8 +41,6 @@
 
 👉 **新用户7.8折优惠码：m78-22off，永久有效**
 
-👉 **国庆季付85折优惠码：season85 ,半年付82折优惠码：halfyear82 ,年付8折优惠码：year80 ,有效期：2024/10/7**
-
 👉 https://bit.ly/3TJ0RYA
 
 2）<b>[HaloCloud](https://cloud.halo.do/zh/#/auth/signup;referral=nmxKiD0h)</b>
@@ -61,40 +51,31 @@
 3）<b>[MESL](https://qbwiue.meslcloud.com/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 **国庆节八五折优惠码： 15%OFF  ，截止日期 10月7日23：59：59。**
-
 👉 https://bit.ly/476L1M5
 
-4）<b>[抖云加速](https://douyun.biz/#/register?code=BwJyTE2t)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
-
-👉 **国庆节八折优惠码： DOUYUN80  ，下单时输入即可全场打八折。**
-
-👉 https://bit.ly/3VyD12j
-
-5）<b>[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)</b>
+4）<b>[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。</p>
 
 👉 https://bit.ly/3GJyTmW
 
-6）<b>[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</b>
+5）<b>[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
 👉 **10月份优惠码, 月/季/半年优惠20%: 1111 ,年付优惠30%:2222 ,不限时10%优惠码: 3333 ,2024/10/01～2024/10/30结束**
 
 👉 https://bit.ly/47oYLBG
 
-7）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
+6）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
 
 👉 https://bit.ly/3ugbftg
 
-8）<b>[随心飞](https://suixinfei.co/#/register?code=lZCDAw1W)</b>
+7）<b>[随心飞](https://suixinfei.co/#/register?code=lZCDAw1W)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;优质中转广移沪移线路高质 不限速，SS协议大机场，节点全1倍率，包括：港，澳门，台，日，美国，英国，新加坡，韩国，印度尼西亚，老挝，缅甸，越南，泰国，柬埔寨，菲律宾等。解锁Netflix，DIsney+，chatgpt等流媒体。有“不限时流量包套餐”可供选择。用多少算多少直至用完。月付7元100g。注册即可免费试用。</p>
 
 👉 https://bit.ly/3Wv309S
 
-9）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
+8）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
 
 👉 https://bit.ly/3wcLLkw
