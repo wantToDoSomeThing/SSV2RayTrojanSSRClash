@@ -118,10 +118,12 @@
 
 👉 https://t.me/soso
 
-<b>[PokePay](https://app.pokepay.cc/pages/passport/invitation?r=156443)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pokepay全球多币种国际支付U卡，零月租，零管理费，ChatGPT、Midjourney、亚马逊、eBay等多场景使用，kyc简单，信息随便填。无需人脸识别，无需上传照片。支持绑定支付宝进行线上消费。卡种有虚拟卡（Visa & Master）：即开即用，多场景丝滑体验。也有实物卡（Visa）：刷卡、ATM取现、绑定支付，大额消费都行。在线USDT充值，轻松解决海外支付难题。7*24小时，全球客服。随时支持。</p>
+<b>[银河录像局](https://nf.video/6AJcu)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;购买海外平台会员且已95折优惠价格购买。可购买，YouTube，Netflix，Disineyplus，多邻国，chatgpt，office365，Midjourney ，Cloude，Spotify，Photoshop，AppleID，AppleOne，AppleTV，ICloud，Hbo, PrimeVodeo等等会员。</p>
 
-👉 https://bit.ly/4eeHm1k
+👉**注册链接 +  一个优惠码：使用注册链接享受97折 + 优惠码才可享95折，优惠码：xiaofc**
+
+👉 https://bit.ly/3YKFJmy
 
 **************************************************  特  殊  介  绍  区  *******************************************************
 
