@@ -28,10 +28,12 @@
 4）<b>[NiceDuck](https://u.niceduck.cc/#/register?code=2o3T6rG1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。赠送硬盘服Emby，配有国内直连线路和0.01倍率Emby专属节点，堪比爱优腾的体验，4K影片秒开，体验感拉满！</p>
 
+👉 **NiceDuck双11优惠活动，全场统统8折，优惠码：duck-8 ，有效期：2024/11/04—2024/11/30**
+
 👉 https://bit.ly/3ujlpMM
 
 5）<b>[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至每月 8 块以下。并且赠送Emby服务(有成人版Emby)，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。</p>
 
 👉 **新用户7.8折优惠码：m78-22off，永久有效**
 
@@ -88,6 +90,10 @@
 
 9）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
+
+👉 **双十一活动，全场79折优惠码 1111-79 ，动结束时间  2024/11/12 00:00:00**
+
+👉 **1一1一限时套餐（仅限50份）,按年重置 / 1111G流量 / 折后最低62.68元**
 
 👉 https://bit.ly/3wcLLkw
 
