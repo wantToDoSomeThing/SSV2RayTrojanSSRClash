@@ -61,10 +61,10 @@
 
 👉 https://bit.ly/3GJyTmW
 
-4）<b>[BestVPN](https://go.bv2.xyz/#/register?code=N5xQ5OsP)</b>
+4）<b>[BestVPN](https://go.invitevp.com/#/register?code=N5xQ5OsP)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;独家Hysteria和Hysteria2协议，不限速，无审计,高速专线大机场， 不限时全部"纯流量"套餐，无月付季付年付，用多少算多少直到用完，节点包括：香港，台湾，日本，新加坡，美国，韩国，越南，俄罗斯，英国，印度，德国，英国，阿联酋，澳大利亚，加拿大，南非，瑞士，法国，荷兰，阿根廷，西班牙，瑞士，智利，意大利，墨西哥，以色列，巴西，土耳其。Netflix，Hulu，Disney+，Paramount等流媒体全解锁。解锁chatgpt。不限制设备数，遇到问题还有远程协助与微信客服帮助。解除使用后顾之忧，实在是翻墙冲浪，必备机场。</p>
 
-👉 https://bit.ly/4c2QoNt
+👉 https://bit.ly/3YXBNPy
 
 5）<b>[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=nmxKiD0h)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。，港、台、日、新、美、 越南、泰国、马来西亚、 澳大利亚、英国、芬兰、加拿大、乌克兰、土耳其、罗马尼亚、 巴基斯坦等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。</p>
