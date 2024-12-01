@@ -24,8 +24,6 @@
 <b><h2>4）[NiceDuck](https://my.niceduck.io/register?code=2o3T6rG1)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。赠送硬盘服Emby，配有国内直连线路和0.01倍率Emby专属节点，堪比爱优腾的体验，4K影片秒开，体验感拉满！</p>
 
-<h3>👉 NiceDuck双11优惠活动，全场统统8折，优惠码：duck-8 ，有效期：2024/11/04—2024/11/30</h3>
-
 <h3>👉 官网地址：https://bit.ly/3O13OiY</h3>
 
 <b><h2>5）[M78星云](https://m78star.cloud/#/register?code=TfURQ1ug)</h2></b>
@@ -64,6 +62,8 @@
 
 <b><h2>4）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
+
+<h3>👉 月/季/半年优惠20%: 1111 ,年付优惠30%:2222 ,不限时10%优惠码: 3333 ,2024/12/01～2024/12/31结束</h3>
 
 <h3>👉 官网地址：https://bit.ly/47oYLBG</h3>
 
