@@ -2,6 +2,10 @@
 
 自己长期使用了好几年的机场，且都亲自测试过，目前一直都在用的机场分享一下：
 
+机场纯小白？[新手教程戳这里](https://github.com/wantToDoSomeThing/SSV2RayTrojanSSRClash/blob/master/content/content.md)
+
+找不到工具？（Android/IOS/鸿蒙/Windows/Mac/Linux科学上网客户端：[科学上网客户端](https://github.com/wantToDoSomeThing/SSV2RayTrojanSSRClash/blob/master/content/%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD/kehuduan.md))
+
 **************************************************  高  级  机  场  区  *******************************************************
 
 高级机场区：用户众多，售后完善，非常稳定，高速，支持地区多，服务态度良好，特殊时期、敏感时期不受影响，几乎感觉不到墙的存在。
