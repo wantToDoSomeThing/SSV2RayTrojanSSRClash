@@ -57,12 +57,12 @@
 
 <h3>👉 官网地址：https://bit.ly/3GJyTmW</h3>
 
-<b><h2>3）[动力港](https://site03.dongligang.me/#/register?code=xUcZ8i2L)</h2></b>
+<b><h2>3）[动力港](https://dkwi2-80432.dongligang.xyz/#/register?code=xUcZ8i2L)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS具性价比的机场，秒开-4K视频，8K不卡。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，荷兰，土耳其等。不限-设备数量和每日用量，Netflix，hulu，Disney+等多国流媒体解锁，开放-ChatGPT Copilot等AI服务。提供“不限时纯流量套餐”</p>
 
 <h3>👉 5折年付优惠券：50%off ，55折季/半年付优惠券：45%off ，6折月付优惠券：40%off ， 5折一次性流量优惠券码：爽歪歪</h3>
 
-<h3>👉 官网地址：https://bit.ly/3YFoSjW</h3>
+<h3>👉 官网地址：https://bit.ly/3VhZhNk</h3>
 
 <b><h2>4）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
