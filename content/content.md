@@ -38,7 +38,7 @@
 <p>&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp如果你喜欢AI，可以用 chatgpt，claude，Midjourney，Runway</p>
 <p>&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp如果你喜欢XXX，可以用XXXX</p>
 
-<h2>四、机场购买要点</h2>
+<h2>五、机场购买要点</h2>
 <p>&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp1、能月付尽量不年付。</p>
 <p>&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp2、买开业时间久，用户群人数多，客服响应快的。大品牌更可靠。</p>
 <p>&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp&nbsp3、及时关注机场动态，发现客户不响应，节点坏了几天没人修，则很可能是要跑路，或者已经跑路。</p>
