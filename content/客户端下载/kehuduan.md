@@ -18,12 +18,6 @@ NekoBoxForAndroid: https://github.com/MatsuriDayo/NekoBoxForAndroid/releases
 
 2）**IOS**系统下推荐可用的客户端
 
-**Apple id账号租用：**
-
-👉https://xintaikeji.eu.org **（推荐）**
-
-👉https://appleid.113778.com/share/appid **（免费共享账号，不推荐）**
-
 shaodowrocket: https://apps.apple.com/ca/app/shadowrocket/id932747118
 
 Quantumult: https://apps.apple.com/ca/app/quantumult/id1252015438
@@ -52,11 +46,17 @@ nekoray: https://github.com/MatsuriDayo/nekoray/releases
 
 clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
 
+fl-clash:https://github.com/chen08209/FlClash/releases
+
+mihomo-party:https://github.com/mihomo-party-org/mihomo-party/releases
+
 4）**MAC**下推荐可用的客户端
 
 clashVerge: https://github.com/zzzgydi/clash-verge/releases
 
 clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
+
+mihomo-party:https://github.com/mihomo-party-org/mihomo-party/releases
 
 5）**Linux**下推荐可用的客户端
 
@@ -65,3 +65,5 @@ clashVerge: https://github.com/zzzgydi/clash-verge/releases
 nekoray: https://github.com/MatsuriDayo/nekoray/releases
 
 clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
+
+mihomo-party:https://github.com/mihomo-party-org/mihomo-party/releases
